@@ -1,5 +1,5 @@
 just4test
-=========
+=========			
 
 
-jiakakaka
+jiakakaka, seharusnya seperti ini, jauh lebih baik jiakakaka, seharusnya seperti ini, jauh lebih baik jiakakaka, seharusnya seperti ini, jauh lebih baik jiakakaka, seharusnya seperti ini, jauh lebih baik jiakakaka, seharusnya seperti ini, jauh lebih baik jiakakaka, seharusnya seperti ini, jauh lebih baik jiakakaka, seharusnya seperti ini, jauh lebih baik jiakakaka, seharusnya seperti ini, jauh lebih baik jiakakaka, seharusnya seperti ini, jauh lebih baik jiakakaka, seharusnya seperti ini, jauh lebih baik jiakakaka, seharusnya seperti ini, jauh lebih baik jiakakaka, seharusnya seperti ini, jauh lebih baik jiakakaka, seharusnya seperti ini, jauh lebih baik jiakakaka, seharusnya seperti ini, jauh lebih baik jiakakaka, seharusnya seperti ini, jauh lebih baik jiakakaka, seharusnya seperti ini, jauh lebih baik 
